@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kajito14
-- 👀 I’m interested in IT, specifically Network Technology.
+- 👀 I’m interested in IT, specifically Network Technology and Cybersecurity.
 - 🌱 I’m currently preparing to get CCNA recertified.
 
 - 📫 Come find me. http://www.instagram.com/bitglobber
